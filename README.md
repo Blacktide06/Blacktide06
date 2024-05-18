@@ -3,7 +3,8 @@ Hey there mysterious viewer!
 It's odd that you're here looking at this because I found this to be pretty boring and not much of use to others.
 However, I am a bit of a perfectionist when it comes to these things so I'm trying to complete all of this no matter how trivial it is.
 
-A bit about me, my name is Tristan and I am a male student who enjoys coding, technology, games, and to be honest, an avid anime watcher. 
+A bit about me, my name is Tristan and I am a male student who enjoys coding, technology, games, and to be honest, an avid anime watcher. On my life though,
+I am a normal upstanding human being and don't make cringe videos on it. I just like the stories and messages behind some of them.
 You can check my Kaize.io (basically MyAnimeList) profile if you think I'm lying. (https://kaize.io/user/blacktidesr/list/animes/completed)
 I finished highschool in 2023 at age 17 with a Bachelors Pass. This has allowed me to study Website Development at Eduvos which I am completing in 2025.
 I was given many academic awards regarding logical subjects such as mathematics and computer applications technology (or computer literacy to some).
